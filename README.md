@@ -1,1 +1,2 @@
 # thigiuaki
+# Bước 1
